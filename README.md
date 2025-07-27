@@ -27,4 +27,5 @@ Let’s connect and shape the future with AI!
 
 **My Contacts:**
 - [Linkedin](http://https://www.linkedin.com/in/yaseminarslann/)
+- [KAIRU](https://kairu.com.tr/)
 
